@@ -1,4 +1,1 @@
 # LubimkiPRO
-мсис
-смисми
-# hjhkjl
